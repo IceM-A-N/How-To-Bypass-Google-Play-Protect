@@ -6,7 +6,7 @@ How To Bypass Google Play Protect
 
 
 
-✅Telegram Contact : t.me/@iceMAN1367
+✅Telegram Contact : t.me/iceMAN1367
 
 
 
@@ -19,4 +19,4 @@ https://github.com/user-attachments/assets/56075405-e388-4df8-b212-93e9eda31a68
 
 
 
-✅Telegram Contact : t.me/@iceMAN1367
+✅Telegram Contact : t.me/iceMAN1367
