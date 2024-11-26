@@ -1,5 +1,5 @@
 # How-To-Bypass-Google-Play-Protect
-How To Bypass Google Play Protect.
+How To Bypass Google Play Protect
 
 
 ✅Channel : https://t.me/icemangroups
